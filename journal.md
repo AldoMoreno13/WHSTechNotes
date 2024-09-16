@@ -1,2 +1,6 @@
 # September 12, 2024
 Today, I created my first GitHub account and repository. I'm excited to start using GitHub for my projects!
+# September 13, 2024
+For Me:if you wer to show me how to do it i wold have onderstand much more easy.
+For You: i have encounter challenges while following the steps it was confusing to see 
+a lot of words that look like comands.
