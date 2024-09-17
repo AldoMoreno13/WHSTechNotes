@@ -11,3 +11,5 @@ the more signal it sends out.if you Put it in front of a vibration motor it will
 The proximity sensor Bit senses objects in front of it. It can sense if an object is far or near.
 The temperatures sensor responds to the temperature surrounding its probe. The higher the temperature 
 it senses, the more signal it sends out.
+# september 17, 2024
+This is a free week.
