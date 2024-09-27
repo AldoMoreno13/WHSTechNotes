@@ -13,3 +13,6 @@ The temperatures sensor responds to the temperature surrounding its probe. The h
 it senses, the more signal it sends out.
 # september 17, 2024
 This is a free week.
+# september 24, 2024
+i found block code much more easier to understandto because i think that it's less confusing to me.
+it help me by shoing a tutorial on how to code in block code.
