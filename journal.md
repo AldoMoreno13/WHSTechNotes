@@ -16,3 +16,5 @@ This is a free week.
 # september 24, 2024
 i found block code much more easier to understandto because i think that it's less confusing to me.
 it help me by shoing a tutorial on how to code in block code.
+# october 2, 2024
+computer sience has bin a big use and has bin an important thing in my life
