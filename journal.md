@@ -18,3 +18,6 @@ i found block code much more easier to understandto because i think that it's le
 it help me by shoing a tutorial on how to code in block code.
 # october 2, 2024
 computer sience has bin a big use and has bin an important thing in my life
+# october 15, 2024
+Coding teaches you to break down problems into smaller steps. When you're coding, you're often faced with complex problems. 
+In order to solve these problems, you need to break them down into smaller, more manageable steps.
