@@ -21,3 +21,6 @@ computer sience has bin a big use and has bin an important thing in my life
 # october 15, 2024
 Coding teaches you to break down problems into smaller steps. When you're coding, you're often faced with complex problems. 
 In order to solve these problems, you need to break them down into smaller, more manageable steps.
+# october 21, 2024
+helpful: Ai is a help foul thing in human life because it can help on things such as problom that are inposbol for humans to solv in 5 minuts
+harmful: AI can also be a bad thin to people becos wat if AI gets conches and starts to take over the Earth.
