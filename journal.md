@@ -26,3 +26,9 @@ helpful: Ai is a help foul thing in human life because it can help on things suc
 harmful: AI can also be a bad thin to people becos wat if AI gets conches and starts to take over the Earth.
 # october 28, 2024
 the inpact on the election prosses using computer science and technology was a very usfol thin in tudays sosiede because ther can be sum people that can rig the the election prosses
+# November 4, 2024
+It is inportant to protect your personal information wen publishing sumthing on line because ther culd be people thst want your information 
+to steal, rob, or stalk you. Ther is a way you can secure your information you share on platforms and one of the methots you can yous is by 
+blocking other people that feel like ther stalking you or dont post sumthin that is way to personal for you.
+For me, I have never bin in social medi that much and never posted sumthing personal about me.
+Working with others while still protecting your privacy can be dificult to do becaus you cant reale trust the person you're working with.
