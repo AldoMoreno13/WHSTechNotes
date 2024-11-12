@@ -32,3 +32,5 @@ to steal, rob, or stalk you. Ther is a way you can secure your information you s
 blocking other people that feel like ther stalking you or dont post sumthin that is way to personal for you.
 For me, I have never bin in social medi that much and never posted sumthing personal about me.
 Working with others while still protecting your privacy can be dificult to do becaus you cant reale trust the person you're working with.
+# November 12, 20214
+En event that had interestd or that had impact my community is the voting election in the U.S. The voting elections was the two major parties, Republicans and Democrats, each held primary elections across the country earlier in the year it was Trump vs Kamala. Honestly the event that hapend culd  have a related thing to somthing that i have lernd for example coding because sum votings are know in computers. how advancements in computer science or technology could play a role in the election of 2024, it culd help voting be mor faster if it was in computer.
