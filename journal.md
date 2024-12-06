@@ -37,4 +37,6 @@ En event that had interestd or that had impact my community is the voting electi
 # November 18, 2024
 The technology is a big change in life it can make food more affordeble and accessible, Benefits include: Higher crop productivity. Decreased use of water, fertilizer, and pesticides, which in turn keeps food prices down. Reduced impact on natural ecosystems. technology can also be bad for our food supply For example, the study considered potential impacts of increased automation in food production on society and the environment. While automation may reduce the labor and agrochemical costs of food production and processing, it may increase energy costs.
 # December 2, 2024
-it excites me that technology is getin biger and biger over time and can help a lot of people.A innovative way this technology could be used in your field of interest
+it excites me that technology is getin biger and biger over time and can help a lot of people.A innovative way this technology could be used in my field of interest 
+like how to  luren simple thing that will complecated or it culd help you reed book just by lisining.ethical considerations might need to be addressed as this 
+technology evolves
