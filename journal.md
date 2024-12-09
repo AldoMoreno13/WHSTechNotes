@@ -40,3 +40,6 @@ The technology is a big change in life it can make food more affordeble and acce
 it excites me that technology is getin biger and biger over time and can help a lot of people.A innovative way this technology could be used in my field of interest 
 like how to  luren simple thing that will complecated or it culd help you reed book just by lisining.ethical considerations might need to be addressed as this 
 technology evolves
+# December 9, 2024
+The term "brain rot" for me means if sume one that had technology at a yung age and barley gos out siyde to experience life. My experience with technology this year has bin 
+
