@@ -43,3 +43,5 @@ technology evolves
 # December 9, 2024
 The term "brain rot" for me means if sume one that had technology at a yung age and barley gos out siyde to experience life. My experience with technology this year has gave me a negative impact on my mental well being.The words slop and lore had connected to my 
  experience with technology, making mi self fell a lil bit slopy wen ever i yuse technology.in my opinion in how to balace meaningful engagement with technology while avoiding “brain rot” is let kids have atles 1-2hours out side to engoie life.
+# December 16, 2024
+I em looking forward for the winter brake sow i can enjoi my free time.
