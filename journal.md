@@ -47,6 +47,10 @@ The term "brain rot" for me means if sume one that had technology at a yung age 
 Im looking forward for the winter brake sow i can enjoi my free time.
 # January 8, 2025
 I enjoy doeng the minecraf codeing. i dont know what tipe of activities id liek to explore because i dont know wat to learn or work.Im interested in pursuing any certifications related to this class.
-# january 13, 2025
+# January 13, 2025
 I think thst AI tools will limit the opprtunities for workers because of how AI rapidly it adapts to things.If i wer to prepare my self 
 for a career in a rapidly changing job i wode fine a job before i graduated from high school or take a job that dosent requier AI.
+# January 22, 2025
+The government intervetion on TikTok culd impact technology companies and their users because the U.S. might also band other companies made in china.
+In my opinion, companis like TikTok wont address security concerns while continuing to operate globally.If I was a developer at TikTok working on a 
+new feature to increase user privacy I'd add a passwor in order to use Tiktok.
