@@ -54,5 +54,5 @@ for a career in a rapidly changing job i wode fine a job before i graduated from
 The government intervetion on TikTok culd impact technology companies and their users because the U.S. might also band other companies made in china.
 In my opinion, companis like TikTok wont address security concerns while continuing to operate globally.If I was a developer at TikTok working on a 
 new feature to increase user privacy I'd add a passwor in order to use Tiktok.
-# Feburary 3, 2025
+# February 3, 2025
 coding flaws or miscommunication between different software systems contribute to accidents because what if ther is a mustaka in a coding and thing might couse big problems in the near futre or wen ther is misommunication at a rong time.
