@@ -56,3 +56,5 @@ In my opinion, companis like TikTok wont address security concerns while continu
 new feature to increase user privacy I'd add a passwor in order to use Tiktok.
 # February 3, 2025
 coding flaws or miscommunication between different software systems contribute to accidents because what if ther is a mustaka in a coding and thing might couse big problems in the near futre or wen ther is misommunication at a rong time.
+# February 18, 2025
+The most interesting ting ive learned last week was the new abilities a new character had in a mobile game calld dragon ball legends
