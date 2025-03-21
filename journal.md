@@ -60,3 +60,5 @@ coding flaws or miscommunication between different software systems contribute t
 The most interesting ting ive learned last week was the new abilities a new character had in a mobile game calld dragon ball legends
 # Febuary 24, 2025
  technology could bridge generational language gaps understanding  maintaining professionalism and cultural awarenesscan help build and improve communication
+# March 17,2025
+the technology that i used over the spring break is ticktok, youYub, Minecraft and other games.This apps help me be entertain and lurn nue things the thing i lurnd in coding helpd understand more on how games are made.
