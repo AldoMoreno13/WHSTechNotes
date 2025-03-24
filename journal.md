@@ -60,5 +60,7 @@ coding flaws or miscommunication between different software systems contribute t
 The most interesting ting ive learned last week was the new abilities a new character had in a mobile game calld dragon ball legends
 # Febuary 24, 2025
  technology could bridge generational language gaps understanding  maintaining professionalism and cultural awarenesscan help build and improve communication
-# March 17,2025
+# March 17, 2025
 the technology that i used over the spring break is ticktok, youYub, Minecraft and other games.This apps help me be entertain and lurn nue things the thing i lurnd in coding helpd understand more on how games are made.
+# march 27, 2025
+I believe that AI-driven predictions, such as those attempting to create perfect brackets, detract from the unpredictability that makes March Madness thrilling,while aiming to enhance the double-edged sword.One one hand, they offer deeper insights and potentially, more informed engagemnt appealing to fans who enjoy data driven analsis.Ai can analyze vast datasets to identify patterns and predict outcomes, providing a different layer of interaction with the tournament.
