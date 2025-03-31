@@ -64,3 +64,6 @@ The most interesting ting ive learned last week was the new abilities a new char
 the technology that i used over the spring break is ticktok, youYub, Minecraft and other games.This apps help me be entertain and lurn nue things the thing i lurnd in coding helpd understand more on how games are made.
 # march 27, 2025
 I believe that AI-driven predictions, such as those attempting to create perfect brackets, detract from the unpredictability that makes March Madness thrilling,while aiming to enhance the double-edged sword.One one hand, they offer deeper insights and potentially, more informed engagemnt appealing to fans who enjoy data driven analsis.Ai can analyze vast datasets to identify patterns and predict outcomes, providing a different layer of interaction with the tournament.
+# march 30, 2025
+1.I fell excited that it's almost the end of the school year. 2.The moust stressful part of school is wen my grades slowly gos down.
+3.I play games in my sterssful times. 4. my goal for the year is to inprove in my grades.5some one I fell well talking to is my dad and mom because i knowe them.
