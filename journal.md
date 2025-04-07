@@ -67,3 +67,5 @@ I believe that AI-driven predictions, such as those attempting to create perfect
 # march 30, 2025
 1.I fell excited that it's almost the end of the school year. 2.The moust stressful part of school is wen my grades slowly gos down.
 3.I play games in my sterssful times. 4. my goal for the year is to inprove in my grades.5some one I fell well talking to is my dad and mom because i knowe them.
+# April 7, 2025
+AI tools like ChatGPT, Khanmigo, or other learning apps could help you perform better on your grades because id culd give you a goo amound of information and has one of the biggist featur of understanding the hardes work problems and can esaly expland it to you in order for you to understand.
