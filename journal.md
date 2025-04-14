@@ -69,3 +69,5 @@ I believe that AI-driven predictions, such as those attempting to create perfect
 3.I play games in my sterssful times. 4. my goal for the year is to inprove in my grades.5some one I fell well talking to is my dad and mom because i knowe them.
 # April 7, 2025
 AI tools like ChatGPT, Khanmigo, or other learning apps could help you perform better on your grades because id culd give you a goo amound of information and has one of the biggist featur of understanding the hardes work problems and can esaly expland it to you in order for you to understand.
+# April 14, 2025
+I believe that bans can be detrimental to students because it makes students more bord and less adetermined to do work at school and may stress students a lot,Im not sayng that students can have phones all the time im sayng that students shuld have at less a 5-10 minut break so they dont feel like they are in prison.
