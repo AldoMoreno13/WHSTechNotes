@@ -71,3 +71,6 @@ I believe that AI-driven predictions, such as those attempting to create perfect
 AI tools like ChatGPT, Khanmigo, or other learning apps could help you perform better on your grades because id culd give you a goo amound of information and has one of the biggist featur of understanding the hardes work problems and can esaly expland it to you in order for you to understand.
 # April 14, 2025
 I believe that bans can be detrimental to students because it makes students more bord and less adetermined to do work at school and may stress students a lot,Im not sayng that students can have phones all the time im sayng that students shuld have at less a 5-10 minut break so they dont feel like they are in prison.
+# April 22, 2025 
+Greetings mis 
+thank you for hleping me understand more the subject of the things i have  learnd during school, and for helping me on problems i couldin't  understand 
