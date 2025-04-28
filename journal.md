@@ -74,7 +74,7 @@ I believe that bans can be detrimental to students because it makes students mor
 # April 28, 2025
 
 	          |Chocolate|Carrot|Vanilla|Graduation|Birthday|Farewell|$35.00|$37.00|$39.00|
-Name	Sally	| 			T				|   x  |    x  |     T    |   X    |   X    |  T   | X    | X     |
+	   Sally	| 			T				|   x  |    x  |     T    |   X    |   X    |  T   | X    | X     |
 Michael				|			 x    |   x  |    T  |     x    |   x    |   T    |  X   | T    | x     |
 Emma							|    x    |   T  |    x  |     X    |   T    |   X    |  X   | X    | T     |
 $35.00					|			 T    |   x  |    X  |                                                  |
