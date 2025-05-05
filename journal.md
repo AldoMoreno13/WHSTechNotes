@@ -83,3 +83,5 @@ $39.00					|			 x    |   x  |    T  |                                           
 Graduation	|				T		  |   x  |    X  |                                                  |
 Birthday			|				x    |   T  |    X  |                                                  |
 Farewell Party|	x				|   x  |    T  |                                                  |
+# May 5, 2025
+I think the 100 men can beat 1 gorilla because some people know how to fight and trow strong punches and its too many people vs a gorilla that is 5 Feet  that weighs 430 mean wille the average people weight 197.8 Times 100.I dont thing this is a resposible to do in real life just to pruve a point and people meay not even learn a lesonf from figting a gorilla. Trend spread beacus of its entertainment on people.
