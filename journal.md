@@ -89,3 +89,5 @@ I think the 100 men can beat 1 gorilla because some people know how to fight and
 The "Chromebook chaleng" is a dum and dangerus challeng that shuld be stopd before it gets wors. The trend shous us how bad we are at keeping aure chromebooks safe and the lack of responsibiliteis.The safty and responsibliteis to ceep youre chrome and others safe is imprtant because the chrome is not yourse and people tont want to get hurt.
 # may 19, 2025
 Im ready for summer
+# Auguist 27, 2025
+Today, I created my first GitHub account and repository. I'm excited to start using GitHub for my projects!
