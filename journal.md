@@ -1,4 +1,6 @@
-# september 15, 2025
+# September 22, 2025
+I think that working in a virtual store and get payd real money isint a grate idea for the futer of jobs al tho tring to play and experiens the fealing of working in a 9 to 5 real job like IKEA is a good idea but get pay for it. there is no point in having a co-worker/werker working in a vertual jobe  wene  people culd jut buy stuff of of the store webside or just drive to the store it self and buy what they want. You culd teach them how stof work, and what thing they are asind to do beafor geting the job, I just think that geting payd for "working" in a virtual store is a grate idea.
+# September 15, 2025
 My idea for an AI project is to create a Artificial Intelligence that can help you talk it  out with your personal fealings or sumthing in  your problems with life somthing that works like a therapy but in your phone without payng for a therapy.im not shure if this is an idea that meets the requirements for the chaleng.my idea was for the people in need of help to talk to someone but have no one or dont have the money or the time to talk to a therapy but they culd use the Artificial Intelligence in there phone with just saying its name kidnof like series.
 # September 8, 2025
 A careeer that i had in mind that computer science could be valuable is architectural engineers beacuse it recuiers to use the computer to analize and make shure to be build correctly.
