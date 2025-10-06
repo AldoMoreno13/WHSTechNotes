@@ -1,3 +1,5 @@
+# October 6, 2025
+
 # September 30, 2025
 The phrase "6,7" is a meme that got popularised by TickTock about a kid screaming to the camera saying 6,7. and is a term used to reference the meme each time the number 6 and 7 are mentioned together, for example "it will take me about 6-7 minutes to walk home" or just the image of 67. It's probably most used or heard in math due to the fact that 6 and 7 are common numbers that are used. iv'e heard it more then 6 or 7 times in that class.
  # September 22, 2025
