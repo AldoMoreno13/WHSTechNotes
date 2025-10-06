@@ -1,5 +1,5 @@
 # October 6, 2025
-
+If i was in charge of the school and I culd change the poloicy for technology id change it to so you can ONLY use yore phonein in lunch time ore in yore free time. In my opinion AI shud not be used to do all yore work insted it shuld give you informations or ideas for work. for chrombooks thers nuthing i wana change about it. 
 # September 30, 2025
 The phrase "6,7" is a meme that got popularised by TickTock about a kid screaming to the camera saying 6,7. and is a term used to reference the meme each time the number 6 and 7 are mentioned together, for example "it will take me about 6-7 minutes to walk home" or just the image of 67. It's probably most used or heard in math due to the fact that 6 and 7 are common numbers that are used. iv'e heard it more then 6 or 7 times in that class.
  # September 22, 2025
