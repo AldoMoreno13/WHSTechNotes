@@ -1,4 +1,5 @@
 # October 14, 2025
+topic: a short educational game about Environmental conservation and Reducing Plastic Waste
 https://www.canva.com/design/DAG1yqXl19s?ui=eyJLIjp7IkEiOiI2ZjBiYTBmOS1jYWRhLTQ2NDUtODJmMS1hZmJhMjIwYjZlNDQifX0)
 # October 6, 2025
 If i was in charge of the school and I culd change the poloicy for technology id change it to so you can ONLY use yore phonein in lunch time ore in yore free time. In my opinion AI shud not be used to do all yore work insted it shuld give you informations or ideas for work. for chrombooks thers nuthing i wana change about it. 
