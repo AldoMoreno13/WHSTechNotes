@@ -1,3 +1,8 @@
+# October 20, 2025
+| Syntax      | Description | Test Text     |
+| :---        |    :----:   |          ---: |
+| Header      | Title       | Here's this   |
+| Paragraph   | Text        | And more      |
 # October 14, 2025
 topic: a short educational game about Environmental conservation and Reducing Plastic Waste
 https://www.canva.com/design/DAG1yqXl19s?ui=eyJLIjp7IkEiOiI2ZjBiYTBmOS1jYWRhLTQ2NDUtODJmMS1hZmJhMjIwYjZlNDQifX0
