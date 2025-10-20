@@ -1,7 +1,7 @@
 # October 20, 2025
-| Name      | Class | Seat     |
-| :---        |    :----:   |          ---: |
-| Franklin      | Title       | Here's this   |
+| Name      | Class       | Seat     |
+| :---      |    :----:   |          ---: |
+| Frankli   | Title       | Here's this   |
 | Hardeep   | Text        | And more      |
 | Marla     |             |               |
 # October 14, 2025
