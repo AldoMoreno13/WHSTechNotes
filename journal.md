@@ -1,8 +1,8 @@
 # October 20, 2025
 | Name      | Class       | Seat     |
 | :---      |    :----:   |          ---: |
-| Frankli   | Title       | Here's this   |
-| Hardeep   | Text        | And more      |
+| Frankli   |             |               |
+| Hardeep   |             |               |
 | Marla     |             |               |
 # October 14, 2025
 topic: a short educational game about Environmental conservation and Reducing Plastic Waste
