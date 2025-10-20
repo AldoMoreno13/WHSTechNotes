@@ -1,5 +1,5 @@
 # October 20, 2025
-| Syntax      | Description | Test Text     |
+| Name      | Class | Seat     |
 | :---        |    :----:   |          ---: |
 | Header      | Title       | Here's this   |
 | Paragraph   | Text        | And more      |
