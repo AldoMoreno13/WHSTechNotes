@@ -1,5 +1,5 @@
 # October 20, 2025
-| Name      | Class       | Seat     |
+| Name      | Class       | Seat          |
 | :---      |    :----:   |          ---: |
 | Frankli   |             |               |
 | Hardeep   |             |               |
