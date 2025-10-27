@@ -1,3 +1,9 @@
+# October 27, 2025
+| Name      | Main dish   | Dessert       |
+| :---      |    :----:   |          ---: |
+| Fions     | Gado Gado   | Creme Brulee  |
+| Tobias    | Shrimp Ceviche | French Aplle Cake |
+| Leanne    | Beef Wellington | Rasperry Tiramisu |
 # October 20, 2025
 | Name      | Class       | Seat          |
 | :---      |    :----:   |          ---: |
