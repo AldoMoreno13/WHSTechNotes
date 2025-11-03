@@ -1,3 +1,6 @@
+# November 3, 2025
+If SNAP were to run out of funding it would  affect people who work there and families who buy frome there prodoct, the company might not get the matirials to use to sell their stuffs .there are thing that technologys that can help SNAP get people to local food banks, free meal programs, or grocery stores and fund the company SNAP such as beater connection, fast communication,and much more 
+beater understanding of what SNAP is about. some challenges that might exist are 
 # October 27, 2025
 | Name      | Main dish   | Dessert       |
 | :---      |    :----:   |          ---: |
