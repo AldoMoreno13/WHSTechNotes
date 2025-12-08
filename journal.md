@@ -1,5 +1,5 @@
 # December 8, 2025
-
+I think the rason way self driving car fail to recognize or correctly respond to a stopped school bus sign is do to its program when looking or reading the stop shighn it dose nothing or it cant see the stop sign.this challenges are probable the reason way the AI dosent stop when it comes to the bussis stop sighn. if I was a programmer on the waymo team, i'd improve the vision from the cars camara from infront, and sides to check for buss stop sign or fix the programing of the AI to read and take information from it's soroundins.
 # December 1, 2025
 Delivary drone operation is a job that uses dronses. Delivary drones manage the day-to-day flight operations of drones to complete tasks like delivery.A pearson that works as a drone operator has a salary of 44,000 to 52,000 per year or 21, 25 per hour .Operators must obtain a Federal Aviation Administration (FAA) Part 107 Remote Pilot Certificate. I wold not like to work in this job beacause of how much you get pay a year.
 # November 17, 2025
