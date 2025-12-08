@@ -1,4 +1,6 @@
-# December 1,2025
+# December 8, 2025
+
+# December 1, 2025
 Delivary drone operation is a job that uses dronses. Delivary drones manage the day-to-day flight operations of drones to complete tasks like delivery.A pearson that works as a drone operator has a salary of 44,000 to 52,000 per year or 21, 25 per hour .Operators must obtain a Federal Aviation Administration (FAA) Part 107 Remote Pilot Certificate. I wold not like to work in this job beacause of how much you get pay a year.
 # November 17, 2025
 I em very exited for Thanksgiving brake.
