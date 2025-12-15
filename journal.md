@@ -1,3 +1,5 @@
+# December 15, 2025
+Play Minecraft.
 # December 8, 2025
 I think the rason way self driving car fail to recognize or correctly respond to a stopped school bus sign is do to its program when looking or reading the stop shighn it dose nothing or it cant see the stop sign.this challenges are probable the reason way the AI dosent stop when it comes to the bussis stop sighn. if I was a programmer on the waymo team, i'd improve the vision from the cars camara from infront, and sides to check for buss stop sign or fix the programing of the AI to read and take information from it's soroundins.
 # December 1, 2025
