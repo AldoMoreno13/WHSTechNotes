@@ -1,3 +1,5 @@
+# january 6, 2026
+over the winter brake I used my electronic devices to wach movis, play video games, and as a give for chrismas they gave me airpots so i cna lisin to my music.I moustly used my phone and chrombook during the brake. 
 # December 15, 2025
 Play Minecraft.
 # December 8, 2025
