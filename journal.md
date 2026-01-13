@@ -1,4 +1,6 @@
-# january 6, 2026
+# January 12, 2026
+autcraft was created for peaple with designed to be a safe, moderated, and welcoming online space for autistic children and their families. safe spaces are needed on the internet, especially in online games and social platforms because it helps people how have issus sostialising with others.  developers have a responsibility to design and protect these spaces to help people in need of this.
+# January 6, 2026
 over the winter brake I used my electronic devices to wach movis, play video games, and as a give for chrismas they gave me airpots so i cna lisin to my music.I moustly used my phone and chrombook during the brake. 
 # December 15, 2025
 Play Minecraft.
