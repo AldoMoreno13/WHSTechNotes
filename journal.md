@@ -1,3 +1,5 @@
+# january 20, 2026
+One way technology can promote fairness or justice is by holding evidens such as video recording, text, and phone calls. A realistic example is when you need evidens of some thing and you coul yuose evidens from video recordings.  this use of technology can be use in court to help people be treated fairly in court.
 # January 12, 2026
 autcraft was created for peaple with designed to be a safe, moderated, and welcoming online space for autistic children and their families. safe spaces are needed on the internet, especially in online games and social platforms because it helps people how have issus sostialising with others.  developers have a responsibility to design and protect these spaces to help people in need of this.
 # January 6, 2026
