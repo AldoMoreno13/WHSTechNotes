@@ -1,3 +1,6 @@
+# February 2, 2026
+personal hygiene and self-care is important in shared environments because it manteins you and others healthy. things like loud conversations, strong smells, or distracting behavior are able to affect people in a negative way that dont alow people to focus in what they are working. Expectations for professional behavior in shared spaces such as 
+respectful language, appropriate volume, personal space, emotional self-control.
 # january 20, 2026
 One way technology can promote fairness or justice is by holding evidens such as video recording, text, and phone calls. A realistic example is when you need evidens of some thing and you coul yuose evidens from video recordings.  this use of technology can be use in court to help people be treated fairly in court.
 # January 12, 2026
