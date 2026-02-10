@@ -1,6 +1,6 @@
 # February 10, 2026
 1.No, its not my favorite sport.
-2.No
+ 2.No
 # February 2, 2026
 personal hygiene and self-care is important in shared environments because it manteins you and others healthy. things like loud conversations, strong smells, or distracting behavior are able to affect people in a negative way that dont alow people to focus in what they are working. Expectations for professional behavior in shared spaces such as 
 respectful language, appropriate volume, personal space, emotional self-control.
