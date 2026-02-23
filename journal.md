@@ -1,10 +1,12 @@
+# February 23, 2026
+I believe the most important technology used in the 2026 Winter Olympics was the Ai powered computar vision for instant performance analythics and high-speed omega timekeeping system. Omega’s 40,000 frames-per-second cameras and new AI-driven stone-tracking in curling provide unprecedented accuracy for, respectively, photo-finishes and trajectory analysis. It's important because it shifts the focus from merely recording when a race ended to analyzing how it was won.
 # February 10, 2026
 1.No, its not my favorite sport.
  2.No
 # February 2, 2026
 personal hygiene and self-care is important in shared environments because it manteins you and others healthy. things like loud conversations, strong smells, or distracting behavior are able to affect people in a negative way that dont alow people to focus in what they are working. Expectations for professional behavior in shared spaces such as 
 respectful language, appropriate volume, personal space, emotional self-control.
-# january 20, 2026
+# January 20, 2026
 One way technology can promote fairness or justice is by holding evidens such as video recording, text, and phone calls. A realistic example is when you need evidens of some thing and you coul yuose evidens from video recordings.  this use of technology can be use in court to help people be treated fairly in court.
 # January 12, 2026
 autcraft was created for peaple with designed to be a safe, moderated, and welcoming online space for autistic children and their families. safe spaces are needed on the internet, especially in online games and social platforms because it helps people how have issus sostialising with others.  developers have a responsibility to design and protect these spaces to help people in need of this.
