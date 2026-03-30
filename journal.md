@@ -1,3 +1,5 @@
+# March 30, 2026
+upsets happen because players ether get luky or work hard .an aexample of an upsets is the Edmonton Oilers over Detroit Red Wings in the NHL Playoffs, 2006.Going up against the top-seeded Wings and a laundry list of future Hall of Famers (most prominently: defenseman Nicklas Lidstrom and forwards Pavel Datsyuk, Henrik Zetterberg, and Brendan Shanahan), the Oilers pulled off a six-game shocker to advance.
 # February 23, 2026
 I believe the most important technology used in the 2026 Winter Olympics was the Ai powered computar vision for instant performance analythics and high-speed omega timekeeping system. Omega’s 40,000 frames-per-second cameras and new AI-driven stone-tracking in curling provide unprecedented accuracy for, respectively, photo-finishes and trajectory analysis. It's important because it shifts the focus from merely recording when a race ended to analyzing how it was won.
 # February 10, 2026
