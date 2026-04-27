@@ -1,3 +1,5 @@
+# April 27, 2026
+Some thing that i paid attention this week that thechnology influence is art. Art has become more digital over the years 
 # April 20, 2026
 Ai is starting to be a daily thing in the internet, examples of that atre google and tiktok. Ai is starding to be more and more advance and harder to tell if it's made by human or not, and it could be a problem for artist who try to make a living off of there talent. When it comes to art people take a lot of effort and time to make, and for Ai to simply make it in a few seconsd is just a way of disrespecting the work of an artist. As of today Ai art is getting better and better to unidentify from real art and it's a problem that shuld be stop. 
 # April 15, 2026
