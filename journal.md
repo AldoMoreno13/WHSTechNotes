@@ -1,3 +1,5 @@
+# May 6, 2026
+Im not personally "helping" AI trane its system. When I use ticktok and uplode images i help AI 
 # April 27, 2026
 Some thing that i paid attention this week that thechnology influence is art. Art has become more digital over the years 
 # April 20, 2026
