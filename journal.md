@@ -49,7 +49,7 @@ beater understanding of what SNAP is about. some challenges that might exist are
 | Hardeep   | Third       | 61F           |
 | Marla     | First       | 35B           |
 # October 14, 2025
-I used AI to assist with this entry.
+# I used AI to assist with this entry.
 topic: a short educational game about Environmental conservation and Reducing Plastic Waste
 https://www.canva.com/design/DAG1yqXl19s?ui=eyJLIjp7IkEiOiI2ZjBiYTBmOS1jYWRhLTQ2NDUtODJmMS1hZmJhMjIwYjZlNDQifX0
 The prompt was designed to create an interactive learning experience that teaches students about reducing plastic waste through decision-making and feedback. Canva interpreted the prompt effectively by generating a colorful, student-friendly layout with clear navigation buttons and animated scenes. The clickable scenarios and quiz elements worked best, keeping learners engaged while reinforcing key concepts. The animations showing the consequences of each choice added visual impact and helped connect actions to outcomes. To improve the prompt next time, more detailed instructions could be added for Canva to include sound effects or voice narration. Additionally, expanding the quiz with more varied question types could make the learning experience even more interactive and memorable.
