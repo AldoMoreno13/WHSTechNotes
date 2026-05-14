@@ -1,5 +1,5 @@
 # May 11, 2026
-I belived that I improved in Independence because 
+I belived that I improved in handeling my stress. I try to better my self in times where life feels exhausting, reminding my self that ther will be more time another day.
 # May 6, 2026
 Im not personally "helping" AI trane its system. When I use ticktok and uplode images i help AI 
 # April 27, 2026
