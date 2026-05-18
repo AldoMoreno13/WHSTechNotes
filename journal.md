@@ -1,3 +1,5 @@
+# May 18, 2026
+Person is a she, 5,3-5,4 around the age of 14-15, mexican american, moust of the time she weres jackets that are red or blue and sumtimes black, would be found at home or at school, they are known to be nervus or quiet and do art. they also look like suguru geto from jujutsu kaisen.
 # May 11, 2026
 I belived that I improved in handeling my stress. I try to better my self in times where life feels exhausting, reminding my self that ther will be more time another day.
 # May 6, 2026
